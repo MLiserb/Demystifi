@@ -13,3 +13,8 @@ Not determine at 100% but we will have some research status such as:
 |            |                                                   |               | Yes     |        | [Source]() |
 |            |                                                   |               | Yes     |        | [Source]() |
 |            |                                                   |               | Yes     |        | [Source]() |
+
+
+---
+**The metaverse Society:**
+<br>https://drive.proton.me/urls/M3DK83TC9C#6fz59AxsmViZ
